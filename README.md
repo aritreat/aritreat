@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @aritreat
+- 👀 I’m interested in bioinformatics and CRISPR
+- 🌱 I’m currently learning computational biology
+- 📫 Reach me by email aritreat05@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I play animal crossing!
